@@ -1,1 +1,0 @@
-# eastmining.ru
